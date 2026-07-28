@@ -52,7 +52,6 @@ jobs:
   deploy:
     needs: build
     environment:
-        ACTIONS_ALLOW_USE_UNSECURE_NODE_VERSION: = true
       name: github-pages
       url: ${{ steps.deployment.outputs.page_url }}
     runs-on: ubuntu-latest
