@@ -1,0 +1,1 @@
+Hydaelyn is the creator of [[Fiora]]. Hydaelyn is a younger god who is learning how to create and become a more powerful God. She exists in a greater plane called [[Arcadia]] where all Gods reside and create worlds in other dimensions and planes. 

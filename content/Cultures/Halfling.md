@@ -1,0 +1,1 @@
+Halflings are short beings who mainly live in the [[Fields of Firo]], but can be found all throughout [[Fiora]]. They are not as discriminated against by Humans as some of the other races such as [[Beastfolk]] or [[Tieflings]].

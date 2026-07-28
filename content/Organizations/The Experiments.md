@@ -1,0 +1,5 @@
+The Experiments happened between the years 1652 and 1658. They were greenlit by [[Lucian Valeria]] and executed by [[The Black Shield]]. The aim of the experiments was to create more powerful beings capable of driving the [[Demons]] back in the absence of King [[Aegis]]. The experimenters gathered [[Ancient Magic]] found from all over the world and used it in creating methods to give people greater powers. They experimented on children because they are able to adapt to change better than adults and so for the best possibility of a success they couldn't use adults. There were many failures in the experiments and only a few successes.
+
+---
+
+The real purpose of the experiments was to create beings powerful enough to become the vessel for the soul of [[Pride]]. Lucian Valeria was being told by [[Valki]] where to find the ruins holding the ancient magic and where to find certain children with the most chance of success.

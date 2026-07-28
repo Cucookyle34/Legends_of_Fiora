@@ -1,0 +1,3 @@
+Ranoa is a [[Local God]] whose temple is located somewhere in the [[Feywilds]]. He is a master of illusions and is known for being tricky. Amongst the other local gods Ranoa is known for slacking off, this has caused issues in the past such as the creation of the Feywilds. Ranoa is very freedom oriented and doesn't like rules and restrictions.
+
+While no local god is really bad per say, Ranoa is certainly the closest. He has disregard for most life and sees this world as something to play with (This is because Ranoa has accidently gained the ability to retain knowledge from all of the past worlds that were created and the death of each one, he is unable to speak about it though because of strict orders from [[Hydaelyn]]).

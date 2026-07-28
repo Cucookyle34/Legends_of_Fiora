@@ -1,0 +1,1 @@
+Leylines are the metaphorical arteries that run all throughout the world of [[Fiora]] and provide balance to everything. They keep [[Mana]] circulating through the world and are maintained by [[Local God]]s and [[Warlock]]s. They are the large version of [[Manaveins]].

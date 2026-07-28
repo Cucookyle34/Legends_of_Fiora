@@ -1,0 +1,1 @@
+The Black Shield was a secret organization created by [[Lucian Valeria]] after he gained more control and influence in [[The Vetresh Empire]] for the purpose of finding promising children to subject to [[The Experiments]]. The makeup of this secret group was a mix of highly skilled fighters and scholars of magic all under the direct control of Lucian.

@@ -1,0 +1,1 @@
+This house is right hand to the king and helps manage the kings work.

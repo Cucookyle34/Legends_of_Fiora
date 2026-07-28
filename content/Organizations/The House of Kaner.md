@@ -1,0 +1,1 @@
+This house manages Commerce and Trade with other nations and keeps up foreign relations.

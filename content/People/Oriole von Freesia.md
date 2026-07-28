@@ -1,0 +1,3 @@
+Oriole is Andrews [[Player Character]] and is a [[Human]] [[Paladin]].
+
+Oriole von Freesia sat on the arm of his father’s throne, that is, he had a specially made miniature throne that allowed him to see every decision his father made. Rather than sit around and frolic with other noble children, he would dutifully sit as he watched his father wave off inane requests and childish complaints. Disregarding the fact he was the son of a provincial lord, even he as an eight year old knew how childish these requests were. What mattered to Oriole’s father was that the province stayed stable by all means possible.

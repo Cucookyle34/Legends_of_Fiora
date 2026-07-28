@@ -1,0 +1,1 @@
+This house manages the resources of the Empire as well as food.

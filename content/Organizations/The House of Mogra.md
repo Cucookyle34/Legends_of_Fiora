@@ -1,0 +1,1 @@
+This is military house, they train knights and mages to strengthen the Empire and deal with police work and the Justice system.
