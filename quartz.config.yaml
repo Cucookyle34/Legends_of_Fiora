@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: Legends_of_Fiora
+  baseUrl: cucookyle34.github.io/Legends_of_Fiora
   ignorePatterns:
     - private
     - templates
