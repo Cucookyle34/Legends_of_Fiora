@@ -1,3 +1,6 @@
+---
+password: Cucoo34/34/
+---
 Local Gods were the creation of [[Hydaelyn]] to manage and control the flow of mana throughout [[Fiora]]. Their job is to make sure ecosystems stay alive and that the world maintains its balance. They do this by maintaining [[Leylines]] and [[Manaveins]]. They do this both directly and indirectly through their followers called [[Warlock]]s.
 
 

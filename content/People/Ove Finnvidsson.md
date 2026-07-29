@@ -1,3 +1,6 @@
+---
+password: Welcometofiora!ove
+---
 Ove is Ava's [[Player Character]] and is a [[Panserbjorn]] [[Warlock]].
 
 # Background

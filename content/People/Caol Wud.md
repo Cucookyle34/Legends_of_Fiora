@@ -1,3 +1,6 @@
+---
+password: Welcometofiora!caol
+---
 Caol is Joes [[Player Character]] and is a [[Halfling]] [[Warlock]].
 
 Caol was born on the northern side of the continent of [[Kandoka]] in a place called [[Lumas Village]] in the [[Fields of Firo]], close to the [[Glastion Peninsula]]. Caol was raised by his parents [[Tolman Wud]] and [[Nora Wud]] until the age of 2 when Caol showed that he had an affinity for becoming a Warlock. He was then brought to the [[Local God]] [[Glasto]] to be trained. For 11 years Caol trained under Glasto, learning all a Warlock needs to know. On Caols 13th birthday he walks to the temple under orders from Glasto. It was then that Caol was kidnapped by a secret organization under the control of [[The Vetresh Empire]]. 

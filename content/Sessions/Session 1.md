@@ -1,4 +1,6 @@
-
+---
+password: Cucoo34/34/
+---
 To do:
 1. Party meets in [[Argive]]
 2. They get invited into main castle

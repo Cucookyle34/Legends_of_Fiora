@@ -1,1 +1,1 @@
-Fiora is the world as created by [[Hydaelyn]]. It has five continents called [[Littjara]], [[Kandoka]], [[Zhalfir]], [[Valla]], and [[Iquatana]]. Fiora is the newest iteration of the world that [[Hydaelyn]] created 
+Fiora is the world as created by [[Hydaelyn]]. It has five continents called [[Littjara]], [[Kandoka]], [[Zhalfir]], [[Valla]], and [[Iquatana]].

@@ -1,3 +1,7 @@
+---
+password: WoahNow12
+---
+
 Rith is a red female [[Dragonborn]] [[NPC]]
 She is from a city in [[The Still Expanse]] with her twin brother [[Arashin]]
 

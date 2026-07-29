@@ -1,3 +1,6 @@
+---
+password: Welcometofiora!emre
+---
 Emre is Edens [[Player Character]] and is a [[Variant Human]] [[Artificer]].
 
 # Background

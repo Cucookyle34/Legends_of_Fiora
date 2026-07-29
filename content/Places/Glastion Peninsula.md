@@ -1,1 +1,4 @@
+---
+password: GlastoHome1
+---
 The Glastion Peninsula is the Jungle Peninsula on the north side of [[Kandoka]]. It is here where [[Glasto]] resides in a [[Temple]] guarding the Jungle and the [[Leylines]] that run through it. There are a few [[Dungeons]] deep in the Jungle as well as a [[Teleportation Circle]].
