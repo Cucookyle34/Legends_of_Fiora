@@ -17,7 +17,7 @@ When the Vetresh Empire had enough of Ove, they brought him along with [[Caol Wu
 
 After taking a while to prepare for the trip into the mountains Ove sets off in search of Neva. A few days into the journey Ove is walking down in one of the mountain valleys when suddenly a large yellow scaled [[Dragon]] swoops down and lands in front of him. The dragon tries to intimidate him by towering over him and staring him down. Ove understands that the dragon is just protecting its territory and so Ove shows his intentions by slowly approaching the dragon and giving the mightiest bear hug to its leg. It understands that you mean no harm and it walks away, you decide to follow it all the way up to its cave high in the mountains. Its there where you find its hatchlings, they take affection to you and you decide to stay for a while as you explore the mountains in search for Neva.
 
-# Vignette
+# Vignette 3
 
 The camera pans over from Lethe passing over the Eloren Wilds and the Fields of Firo over to Zhalfir and the country of Ofrea and up into the Skybreen Mountains. There we find a group of adventurers trekking up a steep and icy mountain trail. We see a Goliath, a Tiefling, and an Elf. There is a blizzard and they are struggling to get up the mountain. They are on a quest from a noble in Ofrea to find a dragon egg as they are very rare and said to be very delicious when cooked properly. The elf exclaims “why the fuck didn’t we decline this quest we knew the guy was crazy off the rip!!!” The Goliath says “He’s paying us more than we usually make in 2 years for one job, of course we would take it!” The Tiefling looks at the map and looks up the barely visible trail and makes out the shape of the cave entrance they were told about, she says “we’re almost there, it should be just past this turn to the right!”
 
@@ -27,4 +27,38 @@ They enter the cave and shake off the snow, they light a torch only to find that
 
 After the trio leaves (or dies?) Ove turns towards the back of the cave to start cooking his meal when a sudden sharp pain fills his head as he falls to his knees. Images of Rith and the capital building of Argive fill his head and they wont leave no matter how hard Ove tries. After around 10 seconds of burning pain Ove falls face first on the ground when suddenly the pain stops and in that moment a memory comes to him clear as day.
 
-**FLASHBACK:** As we enter Ove's memory we are taken back to the dungeon of the Experiments. Back when it was cold and damp. This was the memory of that day, the day you 
+**FLASHBACK:** As we enter Ove's memory we are taken back to the dungeon of the Experiments. Back when it was cold and damp. This was the memory of that day, the day Ove despised the most.  It started out just like every other day in the Experiments, Ove woke up and got up off of the cold stone ground and started talking to people. (Ava can talk to some of the other children in the cell before Rith comes over to talk to Ove)
+
+Rith comes over to Ove and compliments him on how he talked to the other children and made them feel better. 
+
+Talks to Ove about what he wants to do in the future when they get out.
+
+Eventually after a while of talking to each other guards come in and take Ove to the room with the stone altar and take his eye.
+
+Ove gets thrown back into the cell screaming from the pain of his eye. Rith is the first to come running to comfort him even if she seems to be in the same pain as Ove.
+
+**END FLASHBACK:** As Ove wakes up from this memory he looks towards the entrance of the cavern to see a large dragon staring back at him. Ove blinks and the dragon is gone, replaced by a humanoid figure. Ove is frozen in place as this man slowly walks towards him, not quite frozen out of fear but because his presence demands it. He stands over Ove eyes like fire and says "So you are the one Neva chose, not bad." (Wait for Ove to respond or not) 
+
+"Neva, I know you're in there"
+
+At that point its like Neva shares half of her consciousness with Ove as she speaks through him to that man.
+
+Neva: "What do you want [[Sarkahn]]"
+Sarkahn: "I want this one to help me"
+Neva: "Why, you have enough followers as is, hell you have that whole damn nation of freaks where all they wanna do is help you"
+Sarkahn: "Yea but I wanna see something interesting, ever wonder what happens when someone makes 2 pacts"
+Neva: "You can't be serious"
+Sarkahn: "Neva listen, something big is going down and this person you have is connected to it somehow, I trust your judgement so I just want to make sure that whatever side we end up on is the one that wins."
+Neva: "..." (Ove feels that Neva is torn on something)
+Sarkahn: "C'mon Neva, lets be on the same side this time"
+Neva: "Fine, but only because I trust you now and I know better than to go against you, have it your way."
+
+Neva releases Ove's body back to him fully but before leaving entirely Ove can hear Neva tell him "I'm sorry, do what's right by you and that will be what's right by me." With that Neva's presence vanishes and Ove is no longer frozen and able to stand in the presence of Sarkahn.
+
+Sarkahn: "Now, lets get down to business. This is how its gonna work, I can tell there is something big on the horizon, I can just smell it in the Leylines. And whatever it is you and your dragonborn friend are tied into it. That being said, I am willing to offer you power, but in return you are to remain loyal to myself and to Neva. If that means abandoning your friends or sacrificing yourself for the greater good, you will do so. Now I presented it as a choice but really I don't think you have one because whatever is coming its bigger than you and you are going to need all of the power you can get."
+
+(Ove response)
+
+Sarkahn: "Great, wonderful. I'm so glad you could get on board with this, but really, you turn on this world and its people and you are done."
+
+As Ove goes to leave he thinks back about the memory of his times with Rith when it comes to him. The ride back from the demon front, Rith wasn't there?
