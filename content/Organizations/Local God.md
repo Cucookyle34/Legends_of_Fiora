@@ -14,4 +14,3 @@ Local Gods were the creation of [[Hydaelyn]] to manage and control the flow of m
 | [[Glasto]]         | [[Glastion Peninsula]] | Alive         |
 | [[Sarkahn]]        | [[The Still Expanse]]  | Alive         |
 | [[Garruk]]         | [[Eloren Wilds]]       | Alive         |
-
