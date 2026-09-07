@@ -14,7 +14,7 @@ list of known NPC's:
 - [[Jara]]
 - [[Glasto]]
 **Bad
-- [[Lucian Valeria]]
+- [[Lucian Valeria Rose]]
 - [[Valki]]
 - [[Pride]]
 - [[Gluttony]]

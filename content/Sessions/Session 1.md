@@ -15,3 +15,4 @@ What I would like:
 
 ---
 
+"[[Arashin]]": Hello all and welcome back to Argive, I know it is a place of bittersweet memories for you all, you know, being Hero's of [[The Vetresh Empire]] and all. To answer all of your questions, it was I who summoned you here. I know that some of you might have already guessed but I am Arashin, Rith's twin brother. 

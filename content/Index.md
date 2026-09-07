@@ -4,7 +4,7 @@ Welcome to my campaign I'm calling, The Legends of Fiora! This is where Ill be p
 
 ## Select Your PC to Continue!
 
-### [[Orrin]]
+### [[Orrin Goldclaw]]
 
 ### [[Oriole von Freesia]]
 

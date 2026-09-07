@@ -17,3 +17,36 @@ Caol wakes up on a beach, presumably an Island to the north of [[Littjara]], no 
 
 # Vignette 2
 
+As the camera pans away from Argive we head west over the Kessigian Ocean to the continent of Littjara, a vast continent with many different climates and geographies. As we descend towards the continent we rush past wide plains and a small sound to the capital of the continent spanning country of Eshos, Lethe. Lethe is a beautiful spotless city built on a lake. It has a massive circular wall that surrounds the entire city made of a pure white quartz with accents of gold and green. The city itself was carved by magic as the central part of the city sits the lowest and it slowly rises as one gets closer to the outskirts. in place of roads are winding waterways filled with boat taxies and lined with sidewalks, as we get closer to the center of the city the buildings get taller and more people emerge from their homes and are either on their way to work or enjoying a nice day in one of the many parks. But our business is not near the center of the city, as we zoom out from the center we go back in towards the west side of the city right in the shadow the walls cast when the sun starts to set on the horizon. It is there where we focus on a certain man paddling his boat down one of the small back waterways. (Joe describes his character)
+
+As Caol paddles down the canal he passes a narrow waterway wide enough for maybe one boat with a small dark hole that leads to the inside of the city walls. These were old channels used when moving material during the construction of the wall so this is nothing out of the ordinary. But, out of the corner of his eye he notices a shady looking man enter the wall. (Perception check to notice the cargo on his boat)
+
+Caol decides to follow the man down the canal, (Either by boat or leaving his boat and walking along the canal) (Stealth checks). Caol listens to the conversation between the men.
+
+Man 1: "You got the goods?"
+Man 2: "Yea, right here" (Takes off the cloth over the large crate revealing a unicorn (Worth 15,000 GP))
+Man 1: "hehe, no shot. Where'd ya find this?"
+Man 2: "Some old rich guy down south just left it in his barn wide open, it was child's play getting this thing."
+Man 1: "Oh really, Ill tell you what, Ill give ya 5,000 GP for it."
+Man 2: "5,000!?!? YO, THATS NOT WHAT WE AGREED UPON, 12,000 GP OR NO DEAL"
+Man 1: "Whoa Whoa now, I cant have ya yelling in here alright, the echoes in this place carry on. Now, I don't know who agreed to this but I got people to pay and profits to make. So now you have to take this deal, or your not gonna like the alternative."
+Man 2: "..."
+Man 1: "..."
+
+The second man tries to make a run for it when simultaneously a giant crab emerges from the canal to block his escape.
+
+Man 1: "Yea, I cant have you leaving so quickly now, I got a few animals in the back and a couple more on the way so I cant be abandoning this place yet, I'm gonna take that horse, verify that its real, then when the time is right, ill send you back on your way, easy as that"
+
+(At this point if Caol has done nothing Ill proceed on, if not well go into a short combat and see where it goes from there)
+
+After Caol defeats the 2 men, either killing or letting them free, Caol decides what to do with the animals.
+
+After dealing with the animals Caol decides its time to head back but just while starting to head back to his boat, a sharp pain fills his head as he falls to the ground. Images enter his head as if forced into his head, images of Rith and the capital building of Argive flash over and over again until the sudden silence when a memory comes to you clear as day.
+
+**Enter Flashback:** It was a long time ago for Caol, it was cold, dark, and damp. It was the times of the experiments. Caol was taken from his life with his family and brought down here for what, as a thing to be tested upon. Caol had seen many horrible things down here, people over the past few weeks have been leaving and returning with things changed about them, their arms, eyes, or something deep within. Caol knew his time would come soon, and so he sat in the corner of the room almost invisible when looking at a glance. But there was one person who always saw him, Rith. Rith was the one thing in the cell that never changed, always there and comforting those who needed it, never neglecting a single person. Rith had been busy this morning tending to another person in the corner whose eye was replaced a few days ago. As Caol gets up to walk over to Rith and the other person the guards walk in and take Caol away.
+
+Caol gets infused.
+
+When Caol returns to the cell Rith runs up him looking all over to make sure he was okay. Then she embraces him with the warmest hug Caol had received since he was at home with his mother and father. Then as they exit the embrace Caol can only look at Rith as he sees a single tear run down her face.
+
+**End Flashback:** As Caol comes to after experiencing his past again he gets up to his feet and looks around, he starts towards his boat again when a thought comes to him, the cart back to Argive after the war was missing someone, Rith.
